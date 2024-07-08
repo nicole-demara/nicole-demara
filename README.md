@@ -1,3 +1,4 @@
+![Untitled929_20240707232410](https://github.com/nicole-demara/nicole-demara/assets/172944538/ade42855-3020-4edd-8c9c-ee1b903f9d41)
 ## Hi there 👋
 
 <!--
